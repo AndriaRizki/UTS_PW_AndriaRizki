@@ -1,2 +1,3 @@
 # UTS_PW_AndriaRizki
-Nama : Andria Rizki Setiawan
+Andria Rizki Setiawan | 19040036 | Data Kampus
+
